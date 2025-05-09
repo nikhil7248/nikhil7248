@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **nikhilvashistha01@gmail.com.**
 
-- ⚡ Fun fact **I**
+- ⚡ Fun fact **I LOVE MUSIC **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
